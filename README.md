@@ -5,7 +5,7 @@ If this is not being done live or you liked to read the instructions please clic
 
 ## Leah Morvay
 
-- I like cats, art, and cartoons! :3
+- I have 2 brothers and 5 cats! :3
 
 ## Partner Name Here
 
