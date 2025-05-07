@@ -7,6 +7,6 @@ If this is not being done live or you liked to read the instructions please clic
 
 - I have 2 brothers and 5 cats! :3
 
-## Partner Name Here
+## Mira
 
-- Your sentence here
+- I love peppermint tea
